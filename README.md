@@ -2,6 +2,8 @@
 - ❗ I sometimes go by Cenozo or Sieged3
 - 👀 I’m interested in Python coding and HTML
 - 📫 You can reach me via discord (Cenozo)
+- 🧵 Age: 13 (14 in 2 days)
+- 🎂 Birthday: July 21st, 2010
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a furry. I am transgender and I host servers (For video games)
 - 🧪 SCP:SL Server: 69.164.204.176:7777
