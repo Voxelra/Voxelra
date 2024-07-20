@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sieged3
 - ❗ I sometimes go by Cenozo or Sieged3
 - 👀 I’m interested in Python coding and HTML
-- 📫 You can reach me via discord (Cenozo)
+- 📫 You can reach me via discord (Cenozo) or Telegram (PENDING)
 - 🧵 Age: 13 (14 in 2 days)
 - 🎂 Birthday: July 21st, 2010
 - 😄 Pronouns: she/her
