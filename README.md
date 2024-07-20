@@ -7,4 +7,4 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a furry. I am transgender and I host servers (For video games)
 - 🧪 SCP:SL Server: 69.164.204.176:7777
-- 💬 Discord Server: https://discord.gg/zGZEvcNUh4
+- 💬 SCP:SL Discord Server: https://discord.gg/zGZEvcNUh4
