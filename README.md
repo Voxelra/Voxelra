@@ -3,6 +3,6 @@
 - 👀 I’m interested in Python coding and HTML
 - 📫 You can reach me via discord (Cenozo) or Telegram (PENDING)
 - 🧵 Age: 14
-- 🎂 Birthday: July 21st, 2010
+- 🎂 Birthday: July 21st
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a furry. I am transgender and I host servers (For video games)
