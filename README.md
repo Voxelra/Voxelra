@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Verxus
-- ❗ I sometimes go by Cenozo or Verxus
+- 👋 Hi, I’m FliperTail
+- ❗ I mainly go by Verxus
 - 👀 I’m interested in Python coding and HTML
 - 📫 You can reach me via Discord (Cenozo)
 - 🧵 Age: [REDACTED]
