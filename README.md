@@ -1,6 +1,7 @@
 - 👋 Hi, I’m FliperTail
 - ❗ I mainly go by Verxus
 - 👀 I’m interested in Python coding, HTML, Minecraft, and Java
-- 📫 You can reach me via Discord (cenozo)
+- 📫 You can reach me via Discord (cenozo) and as well Email (akazimc8@gmail.com)
 - 🧵 Age Group: MINOR
 - 📄 My website: <https://flipertail.github.io/verxus.me/>
+- 👑 Founder of [AkaziMC](https://github.com/AkaziMC)
