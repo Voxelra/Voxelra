@@ -1,5 +1,6 @@
 - 👋 Hi, I’m FliperTail
 - ❗ I mainly go by Verxus
-- 👀 I’m interested in Python coding and HTML
+- 👀 I’m interested in Python coding, HTML, Minecraft, and Java
 - 📫 You can reach me via Discord (cenozo)
-- 🧵 Age: [REDACTED]
+- 🧵 Age Group: MINOR
+- 📄 My website: <https://flipertail.github.io/verxus.me/>
