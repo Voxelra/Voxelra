@@ -4,5 +4,5 @@
 - 📫 You can reach me via Discord (cenozo) and as well Email (verxus0@gmail.com)
 - 📕 Learning Homebrew 3DS C++ and C code.
 - 🧵 Age Group: **MINOR**
-- 📄 My website: <https://verxus.qzz.io/>
+- 📄 My website: <https://voxelra.github.io/verxus.me/>
 - 👑 Founder of [AkaziMC](https://github.com/AkaziMC)
