@@ -1,4 +1,4 @@
-- 👋 Hi, I’m FliperTail
+- 👋 Hi, I’m Voxelra
 - ❗ I mainly go by Verxus
 - 👀 I’m interested in *Python coding, HTML, Minecraft, and Java*
 - 📫 You can reach me via Discord (cenozo) and as well Email (verxus0@gmail.com)
