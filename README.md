@@ -6,3 +6,5 @@
 - 🧵 Age Group: **MINOR**
 - 📄 My website: <https://voxelra.github.io/verxus.me/>
 - 👑 Founder of [AkaziMC](https://github.com/AkaziMC)
+                    SERVER IP: wss://akazimc.eagler.host
+                               akazimc.eagler.host
